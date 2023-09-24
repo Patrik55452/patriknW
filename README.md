@@ -1,0 +1,2 @@
+# patriknW
+Trošku jsem zkoušel :)
